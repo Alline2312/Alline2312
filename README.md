@@ -1,4 +1,4 @@
-### <img width="150" alt="about" src="https://avatars.githubusercontent.com/u/103800086?v=4">
+
 ### Oi! Sou Alline Silveira 👋
 
 Tenho 19 anos, desde de sempre sou curiosa e apaixonada pela tecnologia 👩‍💻 e Astronomia 👩‍🚀.
