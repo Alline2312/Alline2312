@@ -1,7 +1,7 @@
 
 ### Oi! Sou Alline Silveira 👋
 
-Tenho 19 anos, desde sempre sou curiosa e apaixonada pela tecnologia 👩‍💻 e Astronomia 👩‍🚀.
+Tenho 21 anos, desde sempre sou curiosa e apaixonada pela tecnologia 👩‍💻 e Astronomia 👩‍🚀.
 
 Atualmente estou cursando Bacharelado em Ciência e Tecnologia na <img width="60" alt="about" src="https://labjuta.com.br/wp-content/uploads/2022/03/ufabc_logo.png">.
 
